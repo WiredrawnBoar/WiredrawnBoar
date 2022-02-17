@@ -1,6 +1,9 @@
 •Hi, I’m @WiredrawnBoar
+
 •I’m interested in playing video games like Apex Legend's
+
 •I’m currently learning in a school in Britain
+
 •You can reach me at ayushgaind@gmail.com
 
 If you want to learn how to code HTML,JS and more I 
