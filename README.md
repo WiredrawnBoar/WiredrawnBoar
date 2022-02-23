@@ -2,7 +2,7 @@
 
 •I’m interested in playing video games like Apex Legend's
 
-•I’m currently learning in a school in Britain
+•I’m currently enrolled in a Grammar School
 
 •You can reach me at ayushgaind@gmail.com
 
